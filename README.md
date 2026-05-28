@@ -7,7 +7,7 @@
 
 - 💬 Ask me about **MERN and TALL stacks**
 
-- 📫 How to reach me **skjena7350@gmail.com**
+- 📫 How to reach me **santoshk.jena73@gmail.com**
 
 - ⚡ Fun fact **Ctrl + C, Ctrl + V is my superpower. ⚡**
 
